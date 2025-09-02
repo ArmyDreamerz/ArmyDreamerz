@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ᵃᵗᵃ](https://via.atabook.org/) ⊹ [ᵖʳᵒⁿᵒᵘⁿˢ](https://pronouns.cc/@Bloodwine)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ˢᵗʳᵃʷᵖᵃᵍᵉ]()
+[ᵃᵗᵃ](https://via.atabook.org/) ⊹ [ᵖʳᵒⁿᵒᵘⁿˢ](https://pronouns.cc/@Bloodwine)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ˢᵗʳᵃʷᵖᵃᵍᵉ]()
 
 <img width="736" height="414" alt="1000002313" src="https://github.com/user-attachments/assets/90da2488-4762-4cac-8ae8-8a042ce46927" />
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
